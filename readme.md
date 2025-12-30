@@ -1,4 +1,4 @@
 
-small improvement
-zAmj6iTGZI2cJcCRZ1sQIxgE1oonFM
-2017-01-22T11:20:35Z
+minor cleanup
+ATy2558Cx3Bm50ltPH0aMUuEt72zdJ
+2017-01-08T04:09:41Z
