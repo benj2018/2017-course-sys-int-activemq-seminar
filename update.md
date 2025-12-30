@@ -1,4 +1,4 @@
 
-quick update
-hCPesAgv8mHrRtqY42QY5WnT2ldQLK
-2018-07-27T00:18:57Z
+docs tweak
+oOwccZIw3FauwLX2LM3Drh6nvi0ycS
+2018-11-23T23:27:55Z
